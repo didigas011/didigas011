@@ -1,16 +1,16 @@
-## Hi there 👋
+## boas vindas ao meu pefil tropinha do leleu⚡
 
-<!--
-**didigas011/didigas011** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome è diego011
 
-Here are some ideas to get you started:
+- sou estudante do alura
+- sou também aluno do 1 ano c
+- e sou muito bonito
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Entra em contato comigo 📪
+
+00001136043950sp@al.educacao.sp.gov.br
+
+- @Didigas011
+
+
+![](https://media1.tenor.com/m/x88J9nfk8icAAAAC/minature-pinscher-funny-dog.gif)
